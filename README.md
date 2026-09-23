@@ -1,1 +1,1 @@
-# Digitalizaci-n-26-27
+# Digitalización26-27
